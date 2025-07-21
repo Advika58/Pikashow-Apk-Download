@@ -1,5 +1,7 @@
 # Pikashow-Apk-Download
 # Download PikaShow APK v86 VIP Unlocked for Android
+<img src="https://pikashowsapps.org/wp-content/uploads/2025/01/Pikashow-Apk-2-1024x576.jpg.webp" width="600"/>
+
 
 Pikashow is a free live-streaming platform that offers movies, TV shows, etc...
 
